@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Emin
 - 💞️ I’m looking to collaborate on remmittance apps
-- 📫 Reach me at hey@eminandpartners.com
+- 📫 Reach me at emin@eminandpartners.com
